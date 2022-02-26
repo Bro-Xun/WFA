@@ -7,6 +7,6 @@ well, in fact it is just a kind of application/msdocx file you can open and edit
 :smile::smile::smile:
 
 ---
-**Web is build for everyone, anyone againist freedom online should be killed.**
+**Web is built for everyone, anyone againist freedom online should be killed.**
 
 WFA Org.
